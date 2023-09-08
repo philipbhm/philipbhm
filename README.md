@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @philipbhm
 - 👀 I’m interested in League and lots of Music 
-- 🌱 I’m currently studying at HHU Düsseldorf, GER
+- 🌱 I’m currently studying at NHL Stenden, NL
 - 📫 How to reach me: philip._.bhm on insta
 
 <!---
